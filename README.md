@@ -16,4 +16,4 @@ Web Developer
 
 💞️ I’m looking to collaborate on web , excel
 
-📫 How to reach me aryanjethuri3@gmail.com
+📫 How to reach me by sending a mail aryanjethuri3@gmail.com
